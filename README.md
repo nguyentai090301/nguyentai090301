@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [nguyentai090301](nguyentai090301)
 
-- ⚡ Fun fact **I think I'm funny**
+- ⚡ Fun fact **1+1=1**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
