@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **python, machine learning**
 
-- 👨‍💻 All of my projects are available at [nguyentai090301](nguyentai090301)
+- 👨‍💻 All of my projects are available at [nguyentai090301](https://github.com/nguyentai090301)
 
 - ⚡ Fun fact **1+1=1**
 
