@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [nguyentai090301](https://github.com/nguyentai090301)
 
-- ⚡ Fun fact **1+1=1**
+- ⚡ Fun fact **Just because there is a bass line in a great song doesn’t mean that the bass line is a great bass line**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
